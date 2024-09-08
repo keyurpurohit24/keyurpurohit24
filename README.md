@@ -32,7 +32,7 @@ I'm happy to help with:
 You can find me at:
 - [Email](mailto:keyurpurohit72@gmail.com)
 - [LinkedIn](https://www.linkedin.com/in/keyur-purohit-1120ab1b1/)
-- [Twitter](https://twitter.com/KeyurPurohit64)
+- [Twitter](https://twitter.com/KeyurPurohit45)
 
 ### ⚡ Fun Fact
 
